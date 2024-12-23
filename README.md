@@ -2,4 +2,4 @@
 - 🌱 I’m currently learning pythong :3
 - 📫 How to reach me idk I just made this idk what I'm doing
 - 😄 Pronouns: he/him >:3
-- ⚡ Fun fact: I'm gay :0
+- ⚡ Fun fact: I'm new to coding :3
